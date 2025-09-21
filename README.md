@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GuruPrasadM6364
 - 👀 I’m interested in learning
-- 🌱 I’m currently learning AIML
+- 🌱 I’m currently studying in BE-AIML
 - 💞️ I’m looking to collaborate on Friends
 - 📫 How to reach me is by my mail
 - 😄 Pronouns: Guru
