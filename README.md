@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @GuruPrasadM6364
 - 👀 I’m interested in learning
 - 🌱 I’m currently studying in BE-AIML
-- 💞️ I’m looking to collaborate on Friends
-- 📫 How to reach me is by my mail
+- 💞️ I’m looking to collaborate for team work and projects
+- 📫 Can reach me by mail, linked in or Instagram messenger 
 - 😄 Pronouns: Guru
 - ⚡ Fun fact: 
 
